@@ -47,6 +47,5 @@ To get started with Kewlor Solutions, follow these steps:
 If you have any questions or inquiries, feel free to reach out to us:
 
 - Email: info@kewlor.com
-- Phone: +1-123-456-7890
 
 We look forward to hearing from you and helping you achieve your goals!
